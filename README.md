@@ -1,1 +1,0 @@
-# cgnarendiran.github.io
